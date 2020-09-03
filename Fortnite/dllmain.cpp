@@ -10,7 +10,7 @@
 ******************************************
 **					**
 **  ABSOLUTE GARBAGE MAVEN PASTE LMFAO  **
-**	    Good Job Bazhar             **
+**      Good Job Bazhar On Pasting      **
 ** Oh and this wont work, Anti Paste XD	**
 ******************************************
 ******************************************
